@@ -1,0 +1,2 @@
+# -HNKS26CNTT3_tonghop_Session01_Exall
+Shadowing Practice Submission
